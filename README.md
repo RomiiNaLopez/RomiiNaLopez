@@ -3,8 +3,8 @@
 - 🏘 En la UNAB 🇦🇷
 - 💻 Mi Facebook es @RomiiNa 🌙⚘ 
 - 📫 Mi Instagram es @queen_romiina 💜
-- 📌Mi Instagram de Trabajo: @rn_dd_2024 RN Diseño Digital 🎨🖱💰
-- 📌Mi Facebook de Trabajo: @estampados_cosanostra Estampados CosaNostra ✂💻 (Diseño y Estampados textiles) Comienzo en el año 2017... y continuó trabajando de manera independiente hoy.. 
+- 📌Mi Instagram de Trabajo: @rn_dd_2024 RN Diseño Digital 🎨🖱💰 
+  
 - 🏠 Vivo en Zona Sur, Buenos Aires 🇦🇷🦁
 <!---
 RomiiNaLopez/RomiiNaLopez is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
